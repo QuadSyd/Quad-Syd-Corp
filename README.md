@@ -1,0 +1,1 @@
+# Quad-Syd-Corp
